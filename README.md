@@ -1,0 +1,1 @@
+# C.Perform-testing-of-hypothesis-using-MANOVA.-
